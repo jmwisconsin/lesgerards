@@ -291,4 +291,4 @@
 - J'ai une voix sexy, quand je parle tout le monde s'en branle.
 - Monde de Merde.
 - Tout est bien qui finit plein.
-- 
+- PAS BISOU
