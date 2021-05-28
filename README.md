@@ -1,5 +1,7 @@
 # Stickers Les Gerards
 
+## Originals
+
 - As tu les clefs pour fermer ta gueule?
 - Bière Bellemare
 - J'ai bourrai
@@ -153,3 +155,140 @@
 - Je connaissais Sophie Davant.
 - J'ai la raie du cul qui fait gouttière.
 - Tourne ton cul que je marque un but.
+
+## New 2019
+
+- J'ai la gaule de bois
+- Fumer tue. La pipe détend.
+- Ouvrez les guillemets. Fermez vos gueules
+- Et là, c'est le gramme.
+- Pour le meilleur et pour le kir.
+- Minitel Forever
+- Trou d'balle
+- Change de trou, ça fume.
+- Grand contrôle de mes tétons.
+- Et ce fut le coup de foutre.
+- Jacquie est nickel.
+- Mais dans quel monde Vuitton?
+- Le tout pour le trou.
+- De pute en blanc.
+- Je suis ivre de bonne heure.
+- Doucement sur le poppers.
+- La baise du chômage.
+- Jérémy une tournée!
+- Rennes, ivre en intelligence.
+- Dans le doute, absynthe toi.
+- On fait pas les choses à Poitiers.
+- Dur dur d'être imbibé.
+- C'est le muscadet de mes soucis
+- LA BAGARRE !
+- Didon arrête de gueuler René!
+- Viens ici Merde !
+- Ma Coumba.
+- Ne m'oublie pas!
+- Beurre de lait.
+- Du passé faisons table basse.
+- Bambi is a son of a biche.
+- Vous êtes des animaux.
+- Arrêtez de prendre les cons pour des gens.
+- I want to be a Jean-Michel Jarre.
+- Du rouge, Chinon rien.
+- J'suis pas seulement une gouttière, j'ai aussi une chatte.
+- T'habites à Jouy-sur-Yvette?
+- Il faut pas trop parler le matin sinon l'après-midi on sait plus quoi dire.
+- Indécent, l'autre monte.
+- Maxime Le Fox-Terrier
+- Quand ya chapiteau, ya concert.
+- Recherche slip propre pour demain.
+- A vaincre sans baril on triomphe sans boire.
+- En jean, en short, Angers là-bas.
+- Je bois beaucoup mieux que vous ne dansez.
+- On tient mieux au bar qu'à cheval.
+- Aime moi tendre, aime moi vrai.
+- Vous n'avez pas le monopole du beurre.
+- Vous n'avez pas le monopole du beurre (de lait).
+- Tu passes du Coca-Light.
+- Un esprit sain dans une Corsa.
+- Europe Œnologie Les Verres
+- C'était vieux avant.
+- Ophélie Winter is coming.
+- Hydratez-vous. Mais LAVEZ-vous surtout!
+- 37.2° dans mon canicul.
+- Fait chaud, hein?
+- Tu bar à gouines.
+- A la gare comme à la gare.
+- Tu prends Thérèse pour une réalité.
+- Je suis une prostituée robot venant du futur.
+- Fils de pute d'ancien nazi de bourreau d'enfants, ton père il t'a fini à la pisse après il t'a bercé contre un mur
+- Marcel Sembat les couilles
+- Tu veux ma photo?
+- C'est pour rire gamin...!
+- FREE MST
+- Je peux pas t'encadrer, même en 10x15.
+- Dibond ni mauvais.
+- Auto faux cul.
+- T'as un bokeh, toi!
+- Je t'ai dans le collimateur.
+- NO EXIF
+- J'ai une petite ouverture et une grande profondeur de chatte.
+- Trop sensible, t'es cramé.
+- Casse-toi pour voir ?
+- Baise ta mère, t'auras des frères.
+- Les poils puent bien.
+- Rosé rosé Joséphine.
+- Ton gynéco dit pas de sexe pendant deux semaines, et ton dentiste il dit quoi?
+- On va devoir se serrer les couilles.
+- Chaudasse hein!
+- On distribue des snickers.
+- La notoriété, on lui chie à la gueule.
+- Modèle d'exposition
+- Les cunnilingus d'Œdipe laissent un goût amer.
+- J'ai une gueule de conne.
+- Marcel, deux saillies.
+- Pablo Prescobar.
+- Dieu sema le blé et Marc Lavoine.
+- Je n'ai pas fait l'amour depuis belle levrette.
+- On n'encule pas une poule sans casser des œufs.
+- Greenpeace pas sur le mur.
+- Je donne ma langue aux chattes.
+- Chose vomie, chose due.
+- Les rencontres, oui. La photo, non.
+- C’est Clergue.
+- Nuit de la rouquine.
+- Fait chaud, hein?
+
+## New 2021
+
+- J'te mets dans mon verre et j’te bois cul sec.
+- Arrête d’avoir envie, baise-moi.
+- J’attends ma deuxième dose.
+- En terrasse pour :
+  - ~~profiter du soleil~~
+  - ~~revoir nos amis~~
+  - mater des culs.
+- Je te tiens, tu me tiens, par la zigounette, le premier qui rira aura une levrette.
+- Chuis bien dans mon corps et encore mieux dans le tien.
+- Un esprit malsain dans un corset.
+- Merci aux seuls qui m’ont sucé cette année : les moustiques.
+- Je suis nue sous mes vêtements.
+- Je suis nu sous mes vêtements.
+- Hard amant
+- Chaude ass
+- Lèche-moi la grappe !
+- Burnes out.
+- Suck-sex story.
+- Bed sans Breakfast
+- Emmasque-moi !
+- Pénissez-moi mon Père car j’ai pécho.
+- J’ai des fourmis dans la chatte.
+- Maquée au premier rencard.
+- Classé SECRET DÉFONCE
+- Mi-homme, Michel.
+- Belfast and furious.
+- Nolwenn Leroy Merlin.
+- Je connais Tony par coeur.
+- A la tienne Daho !
+- J'ai une voix sexy, quand je parle tout le monde s'en branle.
+- Monde de Merde.
+- Tout est bien qui finit plein.
+- 
