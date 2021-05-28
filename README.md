@@ -292,3 +292,6 @@
 - Monde de Merde.
 - Tout est bien qui finit plein.
 - PAS BISOU
+- Boire comme une éponge n'efface pas les ardoises.
+- Corinne Touzet mais on n'a pas été invité...
+- Dis donc, il est super ton déguisement de pute !
