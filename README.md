@@ -23,7 +23,7 @@
 - Je ne suis peut-être pas Superman mais j'ai une kryptobite
 - Fist fait bien fait.
 - La moule du risque
-- Aimez vous bordel!
+- Aimez-vous bordel!
 - Doucement sur l'alcool.
 - Doucement sur la colle.
 - Je suis ivre de bonne heure.
@@ -295,3 +295,130 @@
 - Boire comme une éponge n'efface pas les ardoises.
 - Corinne Touzet mais on n'a pas été invité...
 - Dis donc, il est super ton déguisement de pute !
+- Meule d'Or
+- Merci pour l'accueil.
+- La Woute du Wok.
+- Cassez-vous.
+- Un verre, ça va.
+  Trois verres.
+  ça va, ça va, ça va.
+- Frottis en cours
+- Mon fist a le bras long.
+- CACA
+- Ne Suze que si on sancerre.
+- Cointreau n'en faut.
+- Les Eurockéennes de Pelforth.
+- Le don d'Ubu cuité.
+- Rennes Against The Machine
+- Ma chatte sent la litière.
+- Proctologue, un métier dans le vent.
+- Décédai.
+- Mycose Aliagas
+- Marie a tout pris.
+- Boire ou conduire, rien à foutre, je rentre en poney.
+- Harry Poppers.
+- Melon et Melèche pas traîner ton fils.
+- Pas ce soir, j'ai mes Niagara
+- Les sauveteurs en bière.
+- Henri Dès metal.
+- J'm'en bats les seins.
+- Istanbul et Bill.
+- Tu fais moins la Malouine.
+- Moi non plus je ne trouve pas ça drôle madame.
+- Laisse-moi kiffer Laval avec mon mec.
+- On n'est pas venu déguisés en choux pour se faire bouffer le cul par des lapins.
+- J'ai une mémoire de boisson rouge.
+- Rennes à foutre.
+- A l'anus Mauricette !
+- Echec et Matt Pokora.
+- Vers l'infini et Hondelatte !
+- Stephan Eicher mais on a les moyens
+- J'ai vu ta mère sur Onlyfans.
+- Mes cuisses sont tellement ouvertes que j'ai mis Moïse au chômage.
+- T'es con comme la lune et chez toi y'a jamais d'éclipse.
+- Lèche-moi tranquille.
+- Maître connard sur un arbre perché.
+- Erreur du barman en votre faveur recevez 20 shooters.
+- Tu prends ton manteau on s'en va.
+- Chuis parti en trip bouddhiste. Chuis revenu Gandhi.
+- On ne compte pas les oeufs dans le cul de la poule
+- Oublie les papillons avec toi c'est tout le zoo.
+- Tu es belle comme une fin de confinement.
+- Je veux toucher des doigts d'auteur.
+- J'peux pas, j'ai confinement.
+- Le confinement aggrave les cas de connardovirus.
+- Ce soir c'est pennes & boulettes.
+- Ton corps m'aveugle, j'vais te lire en braille.
+- Je suis athée Dieu merci.
+- J'ai la fesse cachée de ta lune.
+- T'as une bouche à pas tomber enceinte.
+- Le futur c'était mieux avant.
+- Découvre ma lune en 69, petit Neil Armstrong
+- Si les moustiques suçaient la graisse on dormirait tous les fenêtres ouvertes.
+- Ta mère aurait dû t'avaler connard.
+- De rien pour les coups de reins.
+- Demain je me tape deux nains.
+- Réveillez-moi l'année prochaine.
+- J'ai un coeur d'archi chaud.
+- Se faire la bise c'est très 2019.
+- Portez des masques mais pas de culottes.
+- Quand tu bois du vin ton regard est divin.
+- Ton cul doit être jaloux de ta bouche en voyant toute la merde qui en sort.
+- C'est vendredimanche.
+- Raclette & Levrette
+- COVID-moi les couilles!
+- Belle & rebelle.
+- Bonsoir un Mojito svp putain j'ai pas ça depuis longtemps
+- Tu peux me unfollow mais pas me unsucer.
+- Intellectuellement vraiment baisable.
+- Tu étais mieux sur Instagram.
+- T'as un corps de rêve: super bien foutu, mais juste dans tes rêves.
+- FOLLOWER
+- Influenceur
+- Influenceuse
+- Tes fesses sont au patrimoine de l'UNESCUL.
+- J'aime ton intelligence et ton petit cul.
+- Si seulement tu pouvais être aussi étroite que ton esprit.
+- Ouvre ton cinéma sans faire de théâtre que je te terrasse.
+- La nature a bien fait les choses. Puis un jour, elle t'a fait toi.
+- Tu t'es vu quand t'as pas bu?
+- Rayons de soleil. Tétons en éveil.
+- Je suis frais comme le rosé du matin.
+- Les terrasses sa race.
+- À PRENDRE OU À LÉCHER
+- J'ai croisé ton boule, il avait l'air cool.
+- McDo. Clito. Dodo.
+- Un Déconféiné svp.
+- On a bien tout vérifié. Le problème c'est bien ta gueule
+- Tout vient à point à qui sait la tendre.
+- Les tigres et les lions sont félins pour l'autre.
+- Femme à lunettes, femme qui voit mal.
+- Just do bite.
+- Toc toc toc.
+- Ma bite est un mensonge. Plus c'est gros plus ça passe.
+- Mon fist, ma bataille.
+- Queue neni.
+- Regard de baise.
+- Entre deux gros nichons bat toujours un petit coeur.
+- LE SHOP EST OUVERT
+- J'aime la politesse putain de merde.
+- Ce soir c'est nibard, ni boîte.
+- Tout est permis. Jusqu'à 21h.
+- Emporté par la foune.
+- I just kékette enough.
+- No pain no miette.
+- De moule et d'eau fraîche.
+- Threesomique.
+- Beurette demi-sel.
+- Fente astique.
+- Autant en emporte le gland.
+- Ce soir, j'irai vomir chez vous.
+- C'terrasse qu'on va se mettre!
+- Patrick j'y vais.
+- Carla chatouille sa gratte.
+- Ça fait Dublin.
+- Pute à frangipane.
+- L'an foiré.
+- Salut Fred !
+- Cas contact
+- Le jour de boire est arrivé.
